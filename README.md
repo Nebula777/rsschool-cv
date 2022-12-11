@@ -1,1 +1,1 @@
-https://nebula777.github.io/rsschool-cv/cv
+https://nebula777.github.io/rsschool-cv/
